@@ -1,0 +1,1 @@
+# TrendSynth_AI
